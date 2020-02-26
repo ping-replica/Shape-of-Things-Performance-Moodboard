@@ -34,6 +34,8 @@ Interesting ideas:
 
 > The Big Book of Science Fiction (p. 477). Knopf Doubleday Publishing Group. Kindle Edition. "
 
+!(https://images.app.goo.gl/GtNvi9QQpV6RJckf6)
+
 
  
 
