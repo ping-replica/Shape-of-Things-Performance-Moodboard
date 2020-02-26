@@ -34,8 +34,7 @@ Interesting ideas:
 
 > The Big Book of Science Fiction (p. 477). Knopf Doubleday Publishing Group. Kindle Edition. "
 
-!(https://images.app.goo.gl/GtNvi9QQpV6RJckf6)
-
+<p><a href="https://www.risingshadow.net/libdb/images/books/39072.jpg"><img src="https://www.risingshadow.net/libdb/images/books/39072.jpg"></a></p>
 
  
 
