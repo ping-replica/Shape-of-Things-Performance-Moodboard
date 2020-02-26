@@ -6,7 +6,7 @@
 
 Very beautiful way of bringing in the idea of the hybrid, the scientst and the artist; the dreamer, the passionate and the rational. It unifies the emotional with the intellectual in a wonderful way. 
 
-I love the way it comments on Zarubi's blue paintin.
+I love the way it comments on Zarubi's blue painting.
 
 >"A Study in Blue"
 
