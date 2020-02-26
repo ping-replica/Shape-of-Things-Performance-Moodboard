@@ -1,4 +1,22 @@
-### Ideas from the Big Book of Science Fiction
+## Ideas from the Big Book of Science Fiction
+
+
+
+##### The Astronaut: [Valentina Zhuravlyova](https://en.wikipedia.org/wiki/Sever_Gansovsky)
+
+Very beautiful way of bringing in the idea of the hybrid, the scientst and the artist; the dreamer, the passionate and the rational. It unifies the emotional with the intellectual in a wonderful way. 
+
+I love the way it comments on Zarubi's blue paintin.
+
+>"A Study in Blue"
+
+>"Two fragile human figures—a man and a woman—with strap-on wings were flying side by side through a blue sky. Everything was painted in different shades of blue, but I had never seen so many. It was a night sky, blue-black, on the lower left edge and a transparent warm midday blue in the opposite corner. The people’s wings were painted in shades of light and dark blue, shading into violet. At points the colors were harsh, clear, sparkling, and in other parts they were softer, muted, transparent. Next to this painting, Degas’s Blue Dancers would have seemed very limited and poorly colored.
+
+The Big Book of Science Fiction (p. 431). Knopf Doubleday Publishing Group. Kindle Edition."
+
+<p><a href="https://live.staticflickr.com/5741/20589155031_95d41c730e_b.jpg"><img src="https://live.staticflickr.com/5741/20589155031_95d41c730e_b.jpg"></a></p>
+
+
 
 
 ##### A Modest Genius: [Vadim Shefner](https://en.wikipedia.org/wiki/Vadim_Shefner)
@@ -35,6 +53,8 @@ Interesting ideas:
 > The Big Book of Science Fiction (p. 477). Knopf Doubleday Publishing Group. Kindle Edition. "
 
 <p><a href="https://www.risingshadow.net/libdb/images/books/39072.jpg"><img src="https://www.risingshadow.net/libdb/images/books/39072.jpg"></a></p>
+
+
 
  
 
