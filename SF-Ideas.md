@@ -1,7 +1,7 @@
-# Ideas from the Big Book of Science Fiction
+### Ideas from the Big Book of Science Fiction
 
 
-## A Modest Genius: [Vadim Shefner](https://en.wikipedia.org/wiki/Vadim_Shefner)
+##### A Modest Genius: [Vadim Shefner](https://en.wikipedia.org/wiki/Vadim_Shefner)
 
 Wonderful and strange imaginary technological objects / poetic technology:
 
