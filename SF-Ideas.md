@@ -25,6 +25,16 @@ Wonderful and strange imaginary technological objects / poetic technology:
 
 * SPOSEM (Special Purpose Optical Solar Energy Machine) - for restoring someone's youth.
 
+##### Day of Wrath: [Sever Gansovsky](https://en.wikipedia.org/wiki/Sever_Gansovsky)
+
+Interesting ideas:
+
+> “What Is a Man?”
+>“In our century of astounding developments in science one might be forgiven for concluding that science is all-powerful. But let us imagine for a moment that an artificial brain has been created, twice as powerful as the human brain and possessing twice the capacity for work. Would a creature with a brain of this type really be allowed to call itself a man? What is it that makes us what we are? The capacity to perform sums, to analyze, to make logical deductions; or is it something else, which arises with the development of society, which is to do with an individual’s relation to others and with the relation of the individual to the collective? If we take the otarks as an example…”
+
+> The Big Book of Science Fiction (p. 477). Knopf Doubleday Publishing Group. Kindle Edition. "
+
+
  
 
 
